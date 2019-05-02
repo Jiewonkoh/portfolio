@@ -1,2 +1,6 @@
-# portfolio
-지원님의 포트폴리오...
+# RESUME
+I am a brand communicator & strategy planner working on uxui, branding, visual identities, planning.
+
+> WORKS
+
+>EXPERIENCE
